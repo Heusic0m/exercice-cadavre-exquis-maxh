@@ -4,4 +4,3 @@ Peu de gens sont capables d'estimer une bonne nuit de sommeil à sa juste valeur
 Et puis il y eu le 15 août... 
 ![GitHub Logo](homer.jpg)
 
-
