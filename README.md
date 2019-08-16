@@ -9,3 +9,9 @@ S
 Moi je dors comme un bébé :D
 
 mais une abeille se posa sur son nez et ...
+
+*ajout ismail*
+
+Quelle ne fut pas la surprise de tout le monde lors qu'un ane en mobilette débarqua en roue arrière venant des couloirs de l'enfer la gorge plein de glaire de la galere en roulant un sdeh ! 
+
+*fin d'ajout*
