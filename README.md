@@ -9,3 +9,5 @@ S
 Moi je dors comme un bébé :D
 
 mais une abeille se posa sur son nez et ...
+
+J'attrapa un bouton très très gros ... ![bouton](5-simple-ways-to-remove-pimples-on-the-nose_1.jpg)
